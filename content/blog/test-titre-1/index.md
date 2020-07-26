@@ -7,6 +7,8 @@ dqsfqsdfsdfsdfsdfsdf
 
 dqsfqsdfsdfsdfsdfsdf
 
+![](image_created_with_a_mobile_phone.png)
+
 dqsfqsdfsdfsdfsdfsdf
 
 dqsfqsdfsdfsdfsdfsdf
